@@ -1,5 +1,5 @@
 ---
-title: "Welcome to Gautam Muralidharan's page"
+title: "Hi, I’m Gautam Muralidharan"
 layout: default
 ---
 
