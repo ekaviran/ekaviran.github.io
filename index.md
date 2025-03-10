@@ -1,5 +1,5 @@
 ---
-title: "Hi, I’m Gautam Muralidharan"
+title: "Hi, I’m Gautam Muralidharan. This is where I write, experiment, and share ideas."
 layout: default
 ---
 
