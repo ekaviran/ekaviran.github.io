@@ -1,24 +1,24 @@
 # Manifesto
 
-i will live fully and freely
-i will live in the present where I am safe, whole and all is well
-I will be grateful for what I have and I have a lot to be grateful for
-i am perfect the way I am
-i have everything i need. less is more. more is less.
-things are just fine the way they are
-i do not need anyone’s validation or permission
-I will create for the joy of it, not the praise of it. My expression is my prayer.
-I will strive for excellence, not to prove myself, but to live fully. My family’s love and my ambition are partners, not enemies.
-I will trust the process, even when I can’t see the outcome. I will act with devotion, not expectation.
-I will not let others’ blindness diminish my light. I will keep going.
+i will live fully and freely  
+i will live in the present where I am safe, whole and all is well  
+I will be grateful for what I have and I have a lot to be grateful for  
+i am perfect the way I am  
+i have everything i need. less is more. more is less    
+things are just fine the way they are  
+i do not need anyone’s validation or permission  
+I will create for the joy of it, not the praise of it. My expression is my prayer  
+I will strive for excellence, not to prove myself, but to live fully. My family’s love and my ambition are partners, not enemies  
+I will trust the process, even when I can’t see the outcome. I will act with devotion, not expectation  
+I will not let others’ blindness diminish my light. I will keep going  
 
-i will love
-i will live in the truth
-i will pray
-i will have faith
-i will dream 
-i will do great work
-i will be a badass
+i will love  
+i will live in the truth  
+i will pray  
+i will have faith  
+i will dream  
+i will do great work  
+i will be a badass  
 
 i will be useful
 i will learn
