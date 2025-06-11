@@ -34,6 +34,7 @@ i will listen
 i will understand  
 
 i will be brave  
+i will be just  
 i will stand up  
 i will stand for  
 i will stand fast  
