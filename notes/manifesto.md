@@ -26,10 +26,13 @@ I will uplift
 I will inspire  
 i will believe  
 
-i will learn  
 i will be curious  
 i will search  
 i will question  
+i will persevere  
+i will embrace adversity  
+
+i will learn  
 i will seek and accept feedback  
 
 i will be humble  
