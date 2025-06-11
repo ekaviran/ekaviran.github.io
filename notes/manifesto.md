@@ -26,6 +26,8 @@ I will uplift
 I will inspire  
 i will believe  
 
+i will master my emotions  
+
 i will be humble  
 i will be kind  
 i will give  
@@ -41,15 +43,14 @@ i will stand fast
 
 I will be optimistic  
 I will be helpful  
-i will be patient  
-
-i will explore  
+i will be patient   
 
 i will grow  
 i will build  
 i will solve  
 i will serve  
 
+i will explore  
 I will unleash  
 i will excel  
 
@@ -118,8 +119,9 @@ i will lift
 i will forget the pain but remember the lessons, sacrifice and courage  
 i will cry when it hurts  
 i will tell others when I am sad  
-i will not be alone, ever  
+i am not alone, ever  
 
+i won't act on emotion  
 i won’t hate  
 i won’t envy  
 i won’t complain  
