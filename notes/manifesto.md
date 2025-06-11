@@ -59,6 +59,7 @@ i will excel
 
 i will fail  
 i will succeed  
+None of it matters because everything is temporary  
 
 i will play  
 i will smile  
