@@ -2,7 +2,7 @@
 
 i will live fully and freely  
 i will live in the present where I am safe, whole and all is well  
-I will be grateful for what I have and I have a lot to be grateful for  
+i will be grateful for what I have and I have a lot to be grateful for  
 i am perfect the way I am  
 i have everything i need. less is more. more is less    
 things are just fine the way they are  
@@ -20,13 +20,16 @@ i will dream
 i will do great work  
 i will be a badass  
 
+I will be optimistic  
+I will uplift  
+I will inspire  
+i will believe  
+
 i will learn  
 i will be curious  
 i will search  
 i will question  
-i will believe  
-
-i will master my emotions  
+i will seek and accept feedback  
 
 i will be humble  
 i will be kind  
@@ -38,12 +41,9 @@ i will be patient
 i will listen  
 i will understand  
 
-I will be optimistic  
-I will uplift  
-I will inspire  
-
 i will be brave  
 i will be just  
+i will do what is right  
 i will stand up  
 i will stand for  
 i will stand fast  
@@ -61,6 +61,10 @@ i will fail
 i will succeed  
 None of it matters because everything is temporary  
 
+i will make enough money  
+i will live with less  
+i will share what I have with those who need it  
+
 i will play  
 i will smile  
 i will laugh  
@@ -69,6 +73,7 @@ i will be full of energy
 i will breathe  
 i will meditate  
 i will introspect  
+i will master my emotions  
 
 i will forgive  
 I will be a source of unconditional love  
@@ -129,6 +134,7 @@ i will tell others when I am sad
 i am not alone, ever  
 
 i won't act on emotion  
+i won't be defensive  
 i won’t hate  
 i won’t envy  
 i won’t complain  
@@ -139,6 +145,8 @@ i won’t steal
 i won’t hurt  
 i won’t gossip  
 i won’t judge  
+i won't deliberately do wrong  
 
+i won't make money, materialism or titles my north star  
 i won’t ask for permission  
 i won’t seek validation  
