@@ -57,8 +57,8 @@ i will explore
 I will unleash  
 i will excel  
 
-i will fail
-i will succeed
+i will fail  
+i will succeed  
 
 i will play  
 i will smile  
