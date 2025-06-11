@@ -20,10 +20,10 @@ i will dream
 i will do great work  
 i will be a badass  
 
-i will be useful  
 i will learn  
-I will uplift  
-I will inspire  
+i will be curious  
+i will search  
+i will question  
 i will believe  
 
 i will master my emotions  
@@ -31,19 +31,22 @@ i will master my emotions
 i will be humble  
 i will be kind  
 i will give  
+i will be useful  
+I will be helpful  
 
+i will be patient  
 i will listen  
 i will understand  
+
+I will be optimistic  
+I will uplift  
+I will inspire  
 
 i will be brave  
 i will be just  
 i will stand up  
 i will stand for  
 i will stand fast  
-
-I will be optimistic  
-I will be helpful  
-i will be patient   
 
 i will grow  
 i will build  
@@ -53,6 +56,9 @@ i will serve
 i will explore  
 I will unleash  
 i will excel  
+
+i will fail
+i will succeed
 
 i will play  
 i will smile  
