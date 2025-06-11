@@ -134,6 +134,12 @@ i will run
 i will row  
 i will swim  
 i will lift  
+i will sleep  
+i will rest  
+
+i will eat right  
+i will honor my body  
+i will resist temptation   
 
 i will forget the pain but remember the lessons, sacrifice and courage  
 i will cry when it hurts  
