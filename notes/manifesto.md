@@ -85,6 +85,9 @@ I will collaborate
 i will include  
 i will applaud others. their success is not my failure. their failure is not my success  
 
+i will lead
+i will follow  
+
 i will be a great father  
 i will help my children with their work  
 i will love them unconditionally  
