@@ -1,4 +1,4 @@
-# Why I choose to begin again
+# Begin again
 
 Some days, I feel small.  
 I question the road behind me, and I can't see the one ahead.  
