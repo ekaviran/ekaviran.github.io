@@ -10,3 +10,4 @@ Welcome to my personal reflections. Iâ€™ve spent years chasing things that didnâ
 
 
 - [Manifesto](/notes/manifesto)
+- [Why I choose to begin again](/notes/begin-again)
